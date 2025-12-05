@@ -1,1 +1,1 @@
-# alatoo-ocs
+# alatoo-ocs.edu.kg
